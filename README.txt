@@ -51,6 +51,3 @@ More info: http://goo.gl/ASuPa1 (pdf)
 Enjoy!
 
 Cheers
-
-Malik Mesellem
-Twitter: @MME_IT
